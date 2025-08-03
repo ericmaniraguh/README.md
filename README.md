@@ -113,9 +113,8 @@ I am a Research Associate at **CyLab Africa / Upanzi Network** and an Instructor
 
 ### 📬 Contact
 
-📍 Gasabo, Kigali, Rwanda  
-📞 +250 788 746 696  
-📧 [emanirag@andrew.cmu.edu](mailto:emanirag@andrew.cmu.edu) | [ericmaniraguha@gmail.com](mailto:ericmaniraguha@gmail.com)  
+
+📧 [emanirag@alumini.cmu.edu](mailto:emanirag@alumni.cmu.edu) | [ericmaniraguha@gmail.com](mailto:ericmaniraguha@gmail.com)  
 🔗 [LinkedIn](https://www.linkedin.com/in/ericmaniraguha)
 
 ---
